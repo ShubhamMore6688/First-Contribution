@@ -1,8 +1,7 @@
-# Abdul Waheed
-
+# Shubham More
 ### Location:
 
-Islamabad, Pakistan
+Pune, India
 
 ### Academics:
 
